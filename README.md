@@ -1,1 +1,1 @@
-- 👋 Hey, I’m @snehahahha
+- 👋 Hey
